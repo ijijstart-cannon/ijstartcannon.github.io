@@ -1,1 +1,1 @@
-# ijstartcannon.github.io
+# ij.start.canon
